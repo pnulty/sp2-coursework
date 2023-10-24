@@ -1,4 +1,4 @@
 # sp2-coursework
-Name:
+Full Name (as on your student record):
 
 Academic Declaration: 
